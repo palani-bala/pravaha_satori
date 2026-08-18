@@ -1,3 +1,6 @@
+- Learning new things
+- Watching movies
+- Playing Games
 My hobby is playing cricket!!
 I am interested in cricket and enjoy watching and playing the game.
 I also enjoy playing cricket with friends whenever I get the opportunity. 
