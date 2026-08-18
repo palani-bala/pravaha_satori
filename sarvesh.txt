@@ -1,0 +1,3 @@
+- Learning new things
+- Watching movies
+- Playing Games
